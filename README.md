@@ -1,4 +1,4 @@
-# Ben-Revere-Career-Overlook
+# Ben-Revere-Career-Overview
 
 My favorite baseball player growing up was Ben Revere,
 and it just so happened he was traded to my favorite team in 2013.
